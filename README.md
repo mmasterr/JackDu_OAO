@@ -4,7 +4,7 @@
 
 主要：bilibili私信
 
-次要：[Telegram](https://t.me/joinchat/LXQu4FVfEvHXVNozrmdq-)
+次要：[Telegram](https://t.me/joinchat/LXQu4FVfEvHHUQl93vrbEg)
 
 本人主玩Minecraft国际版，id:ddddk
 
